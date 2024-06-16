@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yerlan R  isbekov
+- 👋 Hi, I’m Yerlan Risbekov
 - 👀 I’m content creator  and web designer
 - 📫 How to reach me easy dm whatsapp +77071405354  
 
